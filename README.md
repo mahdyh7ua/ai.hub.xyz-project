@@ -7,6 +7,9 @@ vnfjkdvnk
 fvnjfdkdcnjskcn
 hvjdxfvjd
 //lojfvikd\
+kam nayari ha mitoni
+kam nayar faght
+mitoni az passh bar miyaii
 kfvmfkdlvmn
 //jfvkcd
 kam nayar
