@@ -4,7 +4,7 @@ fjdvbjhvjfd
 kjvnbjfcb
 mitofvnhjkdv\
 vnfjkdvnk
-fvnjfdkdcnjskcn
+fvnjfdkdcnjskcni can 
 hvjdxfvjd
 //lojfvikd\
 kam nayari ha mitoni
@@ -14,3 +14,5 @@ kfvmfkdlvmn
 //jfvkcd
 kam nayar
 mitoni
+i can handel it
+I can handle it.
