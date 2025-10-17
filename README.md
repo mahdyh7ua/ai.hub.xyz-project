@@ -12,6 +12,11 @@ vnfjkdvnk
 fvnjfdkdcnjskcni can 
 hvjdxfvjd
 //lojfvikd\
+vnfjkdvnk fvnjfdkdcnjskcni can hvjdxfvjd //lojfvikd
+kam nayari ha mitoni kam nayar faght mitoni az passh bar miyaiibchjdbcv kncjndcvjk lncjkcndfvbj lncvjdkcfv
+
+kfvmfkdlvmn //jfvkcdkjvnbjfcb mitofvnhjkdv
+vnfjkdvnk fvnjfdkdcnjskcni can hvjdxfvjd kam nayar faght mitoni az passh bar miyaiibchjdbcv kncjndcvjk lncjkcndfvbj lncvjdkcfv
 kam nayari ha mitoni
 kam nayar faght
 mitoni az passh bar miyaiibchjdbcv
