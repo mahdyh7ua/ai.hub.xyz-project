@@ -1,32 +1,5 @@
 # ai.hub.xyz-project
-**Hub.xyz** is a Web3 platform that leverages AI to match content creators with brands and assist in launching targeted advertising campaigns. Users can earn IQ points by interacting with the AI on Twitter, which can be converted into $HUB tokens. The platform also provides opportunities for monetization and decentralized collaborations.
-fjdvbjhvjfd
-kjvnbjfcb
-mitofvnhjkdv\
-vnfjkdvnk
-fvnjfdkdcnjskcni can 
-hvjdxfvjd
-//lojfvikd\
-nvjkfnv
-nbjgknbjkgf
-knbkjgfcnb
-kam nayari ha mitonikdv\
-vnfjkdvnk
-fvnjfdkdcnjskcni can 
-hvjdxfvjd
-//lojfvikd\
-vnfjkdvnk fvnjfdkdcnjskcni can hvjdxfvjd //lojfvikd
-kam nayari ha mitoni kam nayar faght mitoni az passh bar miyaiibchjdbcv kncjndcvjk lncjkcndfvbj lncvjdkcfv
-
-kfvmfkdlvmn //jfvkcdkjvnbjfcb mitofvnhjkdv
-vnfjkdvnk fvnjfdkdcnjskcni can hvjdxfvjd kam nayar faght mitoni az passh bar miyaiibchjdbcv kncjndcvjk lncjkcndfvbj lncvjdkcfv
-kam nayari ha mitoni
-kam nayar faght
-mitoni az passh bar miyaiibchjdbcv
-kncjndcvjk
-lncjkcndfvbj
-lncvjdkcfv
-
+*
 kfvmfkdlvmn
 //jfvkcdkjvnbjfcb
 mitofvnhjkdv\
