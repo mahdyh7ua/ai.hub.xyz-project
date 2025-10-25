@@ -1,30 +1,6 @@
 # ai.hub.xyz-project
 *
-kfvmfkdlvmn
-//jfvkcdkjvnbjfcb
-mitofvnhjkdv\
-vnfjkdvnkmitoni az passh bar miyaiibchjdbcv
-kncjndcvjk
-lncjkcndfvbj
-lncvjdkcfv
-
-kfvmfkdlvmn
-//jfvkcdkjvnbjfcb
-mitofvnhjkdv\
-vnfjkdvnk
-fvnjfdkdcnjskcni can 
-hvjdxfvjd
-kam nayar faght
-mitoni az passh bar miyaiibchjdbcv
-kncjndcvjk
-lncjkcndfvbj
-lncvjdkcfv
-fvnjfdkdcnjskcni can 
-hvjdxfvjd
-kam nayar faght
-mitoni az passh bar miyaiibchjdbcv
-kncjndcvjk
-lncjkcndfvbj
+k
 lncvjdkcfv
 
 kfvmfkdlvmn
