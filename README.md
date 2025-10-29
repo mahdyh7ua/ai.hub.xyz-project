@@ -15,7 +15,24 @@ mitoni
 i can handel it
 I can handle it.
 kam nayari ha mitoni
+kam nayar faghtitoni
+i can handel it
+I can handle it.
+kam nayari ha mitoni
 kam nayar faght
+mitoni az passh bar miyaii
+kfvmfkdlvmn
+//jfvkcd
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+Keep trying, God will see you through. 
+keep trying god will see you thr
+kam nayar
+mitoni
 mitoni az passh bar miyaii
 kfvmfkdlvmn
 //jfvkcd
