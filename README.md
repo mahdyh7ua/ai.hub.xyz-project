@@ -1,30 +1,5 @@
 
-vbjxdcfkv
-Keep trying, God will see you through. 
-keep trying god will see you thr
-kam nayar
-mitoni
-i can handel it
-jvbfdcxhj
-vbjxdcfkv
-Keep trying, God will see you through. 
-keep trying god will see you thrkfvmfkdlvmn
-//jfvkcd
-kam nayar
-mitoni
-i can handel it
-I can handle it.
-jvbfdcxhj
-vbjxdcfkv
-Keep trying, God will see you through. 
-keep trying god will see you thr
-kam nayar
-mitoni
-i can handel it
-jvbfdcxhj
-vbjxdcfkv
-Keep trying, God will see you through. 
-keep trying god will see you thr
+thr
 kam nayar
 mitoni
 i can handel it
