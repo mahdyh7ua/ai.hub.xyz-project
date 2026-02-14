@@ -93,7 +93,117 @@ kam nayar
 kam nayar
 mitoni
 i can handel it
+I can handle it.Kn handel it
+I can handle it.andel it
 I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoni
+i can handel it
+Kn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoni
+i can handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+Kn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoniKn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+Kn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoniKn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoni
+i can handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvjvbfdcxhj
+vbjxdcfkvm nayar
+mitoniKn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+Kn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoniKn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm nayar
+mitoni
+i can handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
+Kn handel it
+I can handle it.andel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkvm na
+kam nayar
+kam nayar
+mitoni
+i can handel it
+I can handle it.
+jvbfdcxhj
+vbjxdcfkv
+kam nayar
 jvbfdcxhj
 vbjxdcfkv
 kam nayar
