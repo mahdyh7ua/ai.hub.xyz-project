@@ -6,7 +6,10 @@ jvbfdcxhj
 vbjxdcfkvm nayar
 mitoni
 i can handel it
-Kn handel it
+Kn hande 
+توکل کردم به خدا و اینده خودم وصابر به خدا سپردم و عشق واقعی در زدگی من جاری و من عاشقانه روز هام سپری میکنم و صابر بهم پیام میده و ما مال هم میشیم 
+
+او
 I can handle it.andel it
 I can handle it.
 jvbfdcxhj
