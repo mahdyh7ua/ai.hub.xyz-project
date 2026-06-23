@@ -43,6 +43,7 @@ Kn hande
 خدایا شکرت صابر همسر خوبی برام
 خدایا تورو به عزای حسین منو صابر بهم برسون
 هدایا شکرت
+خدایا برای این ارامش شکرت
 I can handle it.andel it
 I can handle it.
 jvbfdcxhj
