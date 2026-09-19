@@ -57,6 +57,9 @@ mitoni
 i can handel it
 I can handle it.andel it
 I can handle it.
+خدیاا شگرت 
+خدیاا شکرت حواست بهم هست 
+
 jvbfdcxhj
 vbjxdcfkv
 kam nayar
