@@ -58,7 +58,8 @@ i can handel it
 I can handle it.andel it
 I can handle it.
 خدیاا شگرت 
-خدیاا شکرت حواست بهم هست 
+خدیاا شکرت حواست بهم هست
+خدایا شکرت
 
 jvbfdcxhj
 vbjxdcfkv
